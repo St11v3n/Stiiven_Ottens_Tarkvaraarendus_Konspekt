@@ -1,0 +1,1 @@
+# Stiiven_Ottens_Tarkvaraarendus_Konspekt
